@@ -1,0 +1,1 @@
+# PengolahanCitra_pert12
